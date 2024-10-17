@@ -1,7 +1,7 @@
 # 🧠💀 Welcome to the Land of Skibidi 🌀✨
 
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-## YO, I’m Jess Clarence I. Arreza, a professional button-presser and occasional keyboard masher.
+## YO 👋, I’m Jess Clarence I. Arreza, a professional button-presser and occasional keyboard masher.
 
 ### Current Status: 🚽
 - Listening to: 🎶 "Skibidi Dop Dop Yes Yes" on a 10-hour loop.
